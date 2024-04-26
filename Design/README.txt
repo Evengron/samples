@@ -1,0 +1,1 @@
+Most of my game design work is analogue, which makes it harder to showcase my thought process.
